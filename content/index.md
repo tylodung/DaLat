@@ -7,7 +7,7 @@ id: home
 <section class="light home-section">
   <div class="marketing-row">
     <div class="marketing-col">
-      <h3>Tâm Ẩm Thực</h3>
+      <h3>Non Nước Hữu Tình</h3>
       <p>“Phải cố gắng học rộng nghe nhiều, phải biết bổn tâm mình, phải hiểu rõ đạo lý của chư Phật, phải hòa mình vào thế gian để cứu giúp người và vật, không phân biệt ta và người, nghĩ thắng đến quả vị Bồ đề.”</p>
       <p>Nguyện đem công đức này
 Hướng về chúng sanh khắp pháp giới
