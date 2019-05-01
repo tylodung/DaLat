@@ -8,10 +8,10 @@
 
 module.exports = {
   siteMetadata: {
-    title: 'Hữu Tình',
-    siteUrl: 'https://codeworldpostal.com/',
+    title: 'Đà Lạt Mộng Mơ',
+    siteUrl: 'https://usmanga.org/',
     rssFeedTitle: 'tinhthuong',
-    rssFeedDescription: 'Đoàn Bình và Nhân Gian Hữu Tình',
+    rssFeedDescription: 'Đoàn Bình và Đà Lạt',
   },
   mapping: {
     'MarkdownRemark.frontmatter.author': 'AuthorYaml',

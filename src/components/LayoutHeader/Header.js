@@ -148,7 +148,7 @@ const Header = ({location}) => (
                 borderRadius: 15,
               },
             }}
-            href="https://codeworldpostal.com/"
+            href="https://usmanga.org/"
             target="_blank"
             rel="noopener">
             Bakadono {version}
