@@ -7,6 +7,8 @@ author: [doanbinh]
 
 Phật giáo đã từ lâu trở thành một tín ngưỡng rất phổ biến và in đậm vào mỗi cuộc sống của người dân Việt Nam từ hàng ngàn năm nay.
 
+![ten buc hinh](https://bazantravel.com/cdn/medias/uploads/21/21733-chua_linh_quang_1_hotelbooking_com_vn-600x450.jpg "ten buc hinh")
+
 Phật giáo giúp con người định hướng nhân cách sống không những thế còn làm phong phú thêm nền văn hóa Việt Nam. Một trong những đóng góp quan trọng của văn hóa Phật giáo là ngôi chùa, rất đặc biệt mà cũng rất gần gũi, gắn bó với người dân. Không những thế, những ngôi chùa còn góp phần làm tôn thêm vẻ đẹp trang nghiêm cho một thành phố, góp phần làm nên nét đặc trưng riêng biệt. Đà Lạt, một trong những thành phố được thiên nhiên ưu ái ban tặng cho một nền khí hậu ôn hòa, quanh năm mát mẻ cùng những phong cảnh đẹp hữu tình và ẩn nấp trong đó là những ngôi chùa cổ kính, trang nghiêm.
 
 Chùa Linh Quang, ngôi chùa đầu tiên được xây dựng tại thành phố này vì thế còn được gọi bằng cái tên Linh quang tổ đình, một trong những ngôi chùa cổ nhất ở Đà Lạt, ngôi chùa đầu tiên của Phật giáo Lâm Đồng, là nơi đầu tiên đặt nền mống khơi nguồn đạo pháp tại phố núi Cao Nguyên, Lâm Đồng.

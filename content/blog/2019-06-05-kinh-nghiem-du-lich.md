@@ -7,22 +7,24 @@ author: [doanbinh]
 
 Bài viết này sẽ chia sẻ cho quý khách các Kinh nghiệm Du Lịch Đà Lạt 2019 hay nhất để bạn có thể trở thành một du khách thông thái tận hưởng tất cả các món ngon, bổ, rẻ mà vẫn tiết kiệm được túi tiền của mình.
 
-Nên tới đà lạt khi nào?
+![ten buc hinh](https://ksdalat.com/wp-content/uploads/2019/04/kinh-nghiem-du-lich-da-lat.jpg "ten buc hinh")
+
+**Nên tới đà lạt khi nào?**
 
 Đà Lạt đẹp quanh năm nên khi nào bạn đến đà lạt cũng ok. Nếu có điều thì thì một năm bạn có thể đi đà lạt vài lần, với không khí trong lành và hoa nở quanh năm chắc chắn đà lạt sẽ không làm bạn thất vọng.
 
 Nếu là người yêu hoa bạn có thể chọn mùa hoa dã quỳ, hoa anh đào và đồi cỏ hồng.
 
-Kinh nghiệm du lịch đà lạt tự túc
+**Kinh nghiệm du lịch đà lạt tự túc**
 
 Để đi du lịch đà lạt tự túc bạn cần chuẩn bị khá nhiều kiến thức. Từ chỗ ăn ngủ cho tới các điểm tham quan, thuê xe …. đọc xong bài viết này hi vọng bạn sẽ có thêm kinh nghiệm du lịch đà lạt giá rẻ với nhiều điều hay ho.
 
-Đi du lịch đà lạt hết bao nhiêu tiền?
+**Đi du lịch đà lạt hết bao nhiêu tiền?**
 
 Tuỳ vào điều kiện của từng người và bạn muốn đi du lịch đà lạt 1 ngày, 2 ngày, 3 ngày hay 4 ngày thì giá tiền của chuyến đi sẽ khác nhau.
 
 
-Đi máy bay đến Đà Lạt
+**Đi máy bay đến Đà Lạt**
 
 Có rất nhiều chuyến bay thẳng từ Hà Nội, Đà Nẵng hoặc TP.HCM tới sân bay Liên Khương Đà Lạt của Vietnam Airlines, VietJet Air và Air Mekong.
 
@@ -32,7 +34,7 @@ Du khách cũng có thể chọn dịch vụ xe đưa đón sân bay Liên Khư�
 
 Một tin vui dành cho các du khách đến từ Cần Thơ đó là sẽ có các chuyến bay trực tiếp đến Đà Lạt mà không cần phải trải qua những quãng đường dài bằng ô tô.
 
-Đi xe ô tô tới đà lạt
+**Đi xe ô tô tới đà lạt**
 
 Từ Sài Gòn đi Đà lạt bằng ô tô:
 
@@ -60,13 +62,13 @@ Nếu đi từ Đà Nẵng và các tỉnh miền Trung thì bạn có thể l�
 
 Nhà xe Tài Thắng đang khai thác tuyến Hà Nội Lâm Đồng tuy nhiên để đi đến Đà Lạt bạn sẽ mất khoảng hơn 30 tiếng ngồi trên xe, nếu là một người có sức khoẻ tốt và có một chuyến du lịch đà lạt tiết kiệm thì bạn có thể lựa chọn nhà xe này.
 
-Đi xe Đà Lạt tự túc
+**Đi xe Đà Lạt tự túc**
 
 – Ngoài ra quý khách cũng có thể đi lên Đà Lạt bằng ô tô và xe máy của riêng mình để thưởng thức những cung đèo uốn lượn tuyệt đẹp trên đường đi. Nhưng hãy lưu ý đi chậm thôi vì các đoạn đường lên Đà Lạt vốn nổi tiếng là bị bắn tốc độ. Không khéo lại phải lên Đà Lạt thêm 1 chuyến nữa để lấy giấy tờ thì khổ.
 
 Với các thông tin về các cách đi đến đà lạt thì bạn đã có thêm kinh nghiệm du lịch đà lạt tự túc rồi.
 
-Đi du lịch đà lạt cần chuẩn bị những gì?
+**Đi du lịch đà lạt cần chuẩn bị những gì?**
 
 Mang theo quần áo ấm
 
@@ -88,7 +90,7 @@ Cái này là mình nói vui thôi vì rất nhiều du khách đặt tour đà 
 
 Lý do bạn nên mang nhiều tiền là thế!
 
-Kinh nghiệm thuê xe ở Đà Lạt
+**Kinh nghiệm thuê xe ở Đà Lạt**
 
 Đây là điều mà mọi người khá quan tâm và thường hỏi công ty chúng tôi trước khi quyết định đặt dịch vụ, sau đây là cách mà bạn sẽ lựa chọn phương tiện đi lại của mình khi tới Đà Lạt.
 
@@ -103,7 +105,7 @@ Do đà lạt toàn đồi và dốc cao nên khá khó khăn nếu bạn muốn
 Thuê xe ô tô:
 Bạn có thể thuê xe ô tô tự lái với giá từ 700.000đ/ ngày hoặc lựa chọn đi taxi và Grab, để thuê xe ô tô tự lái bạn chỉ cần mang theo chứng minh và đặt cọc là được giao xe ngay. Tham khảo giá xe cho thuê ở đây:
 
-Một số hãng Taxi tại Đà Lạt
+**Một số hãng Taxi tại Đà Lạt**
 
 Bạn có thể lựa chọn các hãng Taxi dưới đây để được phục vụ nhanh nhất.
 
@@ -114,7 +116,7 @@ Taxi Quốc Tế : 02633.52.52.52
 Dalat Taxi : 02633.666.888
 Chi tiết về giá dịch vụ tất cả của các hãng taxi tại đà lạt bạn có thể xem ở bài viết này.
 
-Kinh nghiệm chọn khách sạn:
+**Kinh nghiệm chọn khách sạn:**
 
 Đầu tiên bạn nên xác định là mình muốn ở một khách sạn đà lạt như thế nào, có thể là gần trung tâm hoặc là một khu nghỉ dưỡng đẹp ở dưới Hồ Tuyền Lâm. Thường thì công ty sẽ tư vấn chi tiết cho khách còn bạn thì có thể xem ở dưới đây.
 
@@ -132,15 +134,15 @@ Chỉ mất bài phút để đi bộ ra hồ xuân hương con đường này c
 
 Homestay
 
-Kinh nghiệm đặt phòng khách sạn ở Đà Lạt
+**Kinh nghiệm đặt phòng khách sạn ở Đà Lạt**
 
 Theo kinh nghiệm thường đặt khách sạn cho các khách du lịch của công ty ( khách có điều kiện 1 chút) thì các khách sạn từ 3 sao trở lên được khách du lịch chọn nhiều nhất là Khách sạn Ngọc Phát tiêu chuẩn 3 sao nằm trên đường Hồ Tùng Mậu. Khách sạn này tuyệt đẹp nằm bên cạnh Hồ Xuân Hương thơ mộng và đi ra chợ đêm chỉ mất 5 phút đi bộ.
 
-Kinh nghiệm đặt tour du lịch đà lạt
+**Kinh nghiệm đặt tour du lịch đà lạt**
 
 Chỉ với 2 hoặc 4 người mà bạn muốn khám phá tất cả các điểm tham quan đẹp nhất của Đà Lạt sẽ phải mất một khoản tiền khá lớn như thuê ô tô, hướng dẫn viên, vé vào cổng, nước uống…. Và cách để bạn có được kinh nghiệm du lịch đà lạt tiết kiệm là:
 
-Kinh nghiệm du lịch đà lạt 1 ngày
+**Kinh nghiệm du lịch đà lạt 1 ngày**
 
 Để tiết kiệm tối đa cho du khách vừa tham quan được tất cả các điểm nổi tiếng vừa có chi phí rẻ công ty chúng tôi đã cho ra đời 8 chương trình Tour ghép đoàn tham quan 1 ngày giá rẻ như :
 
@@ -153,14 +155,14 @@ Tour Ngoại thành Đà Lạt giá 230.000đ/khách tham quan các điểm như
 Tất cả giá trên đã bao gồm xe đời mới, hướng dẫn viên chuyên nghiệp và vé vào cổng tất cả các điểm. Sau khi tham gia các tour này vào buổi chiều lúc 18h du khách có thể đăng ký thêm tour cồng chiêng langbiang giá 130.000đ/ khách giao lưu và đốt lửa trại uống rượu cần với bà con dân tộc Tây Nguyên dưới chân núi LangBiang hùng vĩ.
 
 
-Đặt tour đà lạt cho đoàn
+**Đặt tour đà lạt cho đoàn**
 
 Để có giá tour cho đoàn một cách tốt nhất bạn nên gọi tới hotline hoặc gửi email cho công ty chúng tôi để được tư vấn chi tiết.
 
 Ngoài ra những bạn đi Tour Dalat 3 ngày 2 đêm hoặc 4 ngày 3 đêm đều có giá tốt và được đặt khách sạn ở ngay trung tâm thành phố chỉ với vài bước chân là đã ra tới Hồ Xuân Hương và Chợ Đêm Đà Lạt rất là thuận tiện.
 
 
-Kinh nghiệm du lịch đà lạt ngày Lễ Tết
+**Kinh nghiệm du lịch đà lạt ngày Lễ Tết**
 
 Đi đến Đà Lạt ngày Lễ Tết chắc chắn bạn sẽ gặp phải những vấn nạn sau đây:
 
