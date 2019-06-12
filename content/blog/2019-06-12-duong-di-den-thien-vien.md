@@ -7,32 +7,34 @@ author: [doanbinh]
 
 Thiền viện Trúc Lâm là một trong 3 thiền viện lớn nhất ở Việt Nam thuộc dòng Trúc Lâm Yên Tử với diện tích lên tới 30ha. Từ thiền viện đi tới trung tâm thành phố Đà Lạt khoảng 5 km. Hai bên đường vào Thiền Viện được bao bọc bởi những cánh rừng thông bạt ngàn.
 
+![ten buc hinh](http://camnangdulich4mua.com/upload/images/da-lat/gia-ve-cap-treo-doi-robin-da-lat.jpg "ten buc hinh")
 
-Thiền viện trúc lâm Đà Lạt ở đâu?
+
+**Thiền viện trúc lâm Đà Lạt ở đâu?**
 
 Thiền viện thuộc đường Trần Thánh Tông nằm trên đồi Phụng Hoàng thuộc phường 3 thành phố Đà Lạt tỉnh Lâm Đồng
 
 
 
-Đường đi thiền viện trúc lâm đà lạt:
+**Đường đi thiền viện trúc lâm đà lạt:**
 
 Đường tới Thiền viện Trúc Lâm cũng vô cùng đặc biệt đó là đi qua một trong những biệt điện đẹp nhất của Đà Lạt đó chính là Dinh 3 của vua Bảo Đại.
 
 Bạn có thể đi theo bản đồ dưới đây để đi đến Thiền Viện Trúc Lâm và các địa điểm khác như Hồ Tuyền Lâm, Thác Datanla.
 
 
-Truyền thuyết về Thiền Viện Trúc Lâm Đà Lạt
+**Truyền thuyết về Thiền Viện Trúc Lâm Đà Lạt**
 
 Vào một đêm những năm 1986 khi đang say mình trong giấc ngủ ngài Thích Thanh Từ nằm mộng thấy mình đang ôm cổ Phụng Hoàng bay vút lên. Tỉnh giấc sau khi chiêm nghiệm ngài liền nghĩ tới thành phố Đà Lạt với khí hậu mát mẻ quanh năm, phong cảnh tuyệt đẹp, núi hồ thanh vắng nếu có một thiền viện cho chúng tăng tu đạo sẽ sớm thành chính quả.
 
 Chính vì thế ngài đã phác họa toàn cảnh thiền viện và đi tìm địa điểm thích hợp để xây cất. Khi tới khu vực Hồ Tuyền Lâm ngài rất hài lòng chúng Phật tử vì vậy liền thuận theo ý ngài tiến hành các thủ tục xin cấp đất.
 
 
-Quá trình xây dựng Thiền Viện Trúc Lâm Đà Lạt
+**Quá trình xây dựng Thiền Viện Trúc Lâm Đà Lạt**
 
 Thiền viện Trúc Lâm được xây dựng vào ngày 08/04/1993 và đến ngày 08/02/1994 thì hoàn thành và bắt đầu khóa thiền đầu tiên. Người thiết kế là ông Vũ Xuân Hùng và Trần Đức Lộc và kiến trúc sư rất nổi tiếng thời đó là Ngô Viết Thụ – người đã thiết kế ra Dinh Độc Lập ở thành phố Hồ Chí Minh.
 
-Trong thiền viện có 4 khu vực:
+**Trong thiền viện có 4 khu vực:**
 
 Khu tịnh thất hòa thượng
 
@@ -46,7 +48,7 @@ Thiền Viện Trúc Lâm Đà Lạt
 
 Các khu vực trong thiền viện.
 
-Tham quan Thiền Viện Trúc Lâm
+**Tham quan Thiền Viện Trúc Lâm**
 
 Nếu du khách đang du ngoạn Hồ Tuyền Lâm có thể đi bộ lên một con dốc có 140 bậc bằng đá đi qua tất cả ba cổng tam quan để đi vào tham quan chánh điện.
 
@@ -61,14 +63,14 @@ Rời chánh điện đi ra khu vực vườn hoa có rất nhiều các loại 
 Rời vườn hoa du khách đi xuống phía dưới chùa là Hồ Tĩnh Tâm, nuôi rất nhiều loại rùa cảnh, nước luôn trong xanh quanh năm xung quanh có rất nhiều ghế đá và chòi để du khách nghỉ ngơi.
 
 
-Cáp treo thiền viện trúc lâm Đà Lạt
+**Cáp treo thiền viện trúc lâm Đà Lạt**
 
 Có một điều đặc biệt nhất của Thiền Viện Trúc Lâm mà không điểm du lịch đà lạt nào có được đó chính là hệ thống cáp treo nối từ khu du lịch Cáp Treo đi thẳng tới Thiền Viện.
 
 Giá đi 1 chiều là 50.000đ đi 2 chiều là 70.000đ
 
 
-Các lưu ý khi đến Thiền Viện Trúc Lâm Đà Lạt
+**Các lưu ý khi đến Thiền Viện Trúc Lâm Đà Lạt**
 
 Do thiền viện là chốn tôn nghiêm nên khi đến tham quan quý khách cần lưu ý những điều sau:
 

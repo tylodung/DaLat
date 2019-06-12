@@ -1,18 +1,20 @@
 ---
 published: true
 hidden: false
-title: Đồi Mộng Mơ Đà Lạt có gì mà ai cũng muốn tham quan
+title: Đồi Mộng Mơ Đà Lạt có gì mà ai cũng muốn tham quan?
 author: [doanbinh] 
 ---
 
 Đà Lạt từ lâu đã trở thành một trong những thành phố du lịch nổi tiếng nhất của Việt Nam, với nhiều cảnh quan thiên nhiên đẹp và thơ mộng. Có ai đó đã từng ví Đà Lạt cũng giống một thành phố trong rừng, nơi khí trời se lạnh, thiên nhiên và con người gần gũi như luôn hoà quyện, đan xen vào nhau. 
 
-Giới thiệu đồi mộng mơ Đà Lạt
+![ten buc hinh](https://dulichdalat.pro/wp-content/uploads/2016/08/Doi-mong-mo-dulichdalat-0.jpg "ten buc hinh")
+
+**Giới thiệu đồi mộng mơ Đà Lạt**
 
 Đồi Mộng Mơ với tổng diện tích gần 12 hecta, nằm cách trung tâm thành phố ngàn hoa chỉ 4km về phía Bắc và nằm bên cạnh Thung Lũng Tình Yêu ở Đà lạt xinh đẹp. 
 
 
-Lịch sử hình thành:
+**Lịch sử hình thành:**
 
 Nơi đây được tôn tạo từ Hồ Rồng( Hồ Rồng được khởi công xây dựng từ năm 1978 và chuyển thành khu du lịch từ năm 1992), nay đã được biến chuyển thành một khu tham quan đà lạt khép kín với một diện mạo hoàn toàn mới.
 
@@ -21,7 +23,7 @@ Nơi đây được tôn tạo từ Hồ Rồng( Hồ Rồng được khởi cô
 Đồi mộng mơ tiếng anh là Dreaming Hill
 
 
-Tham quan Đồi Mộng Mơ Đà Lạt
+**Tham quan Đồi Mộng Mơ Đà Lạt**
 
 Đến với khu du lịch Đồi Mộng Mơ, ngoài việc thưởng ngoạn các thắng cảnh thiên nhiên thơ mộng hữu tình với muôn ngàn hoa khoe sắc, một không gian lãng mạn và hấp dẫn, du khách còn được vui chơi, giải trí và có những trải nghiệm vô cùng thú vị với nghệ thuật đá chen hoa, thác vàng, hồ nước, nhà hàng, khu vui chơi thể thao, giải trí và bán đồ lưu niệm.
 
@@ -42,7 +44,7 @@ Ngoài ra tới nơi đây du khách còn có thể chơi Golf trên sân mini c
 
 Khu du lịch Đồi Mộng mơ thực sự là một sản phẩm du lịch đặc sắc độc đáo đã góp phần tạo nên những sắc thái riêng về cảnh quan và con người Đà Lạt mà du khách không nên bỏ lỡ khi đến với xứ sở mù sương Đà Lạt thân yêu.
 
-Nên tham quan những địa điểm nào trong Đồi Mộng Mơ
+**Nên tham quan những địa điểm nào trong Đồi Mộng Mơ?**
 
 Khi vào tham quan trong đồi mộng mơ bạn nên lựa chọn những điểm nổi tiếng sau:
 
@@ -60,11 +62,11 @@ Thác Vàng
 
 Khu vườn kỳ lạ: Trong vườn này sẽ có những sinh vật bị đột biến gen như gà 7 cựa, trâu, bò có 5 chiếc sừng hay con heo có 5 chân
 
-Đồi mộng mơ Resort
+**Đồi mộng mơ Resort**
 
 Nếu bạn muốn nghỉ dưỡng trực tiếp tại Đồi Mộng Mơ thì có thể tham khảo giá của các căn biệt thự được làm hoàn toàn bằng gỗ và nằm giữa rừng thông sau đây:
 
-Có 5 loại phòng chính trong khu Resort
+**Có 5 loại phòng chính trong khu Resort**
 
 Phòng Double/Twin: 430.000/đêm
 
@@ -77,10 +79,10 @@ Phòng Rose villa: 3.100.000/đêm
 Phòng Extra person: 200.000/đêm
 
 
-Giá vé đồi mộng mơ:
+**Giá vé đồi mộng mơ:**
 
 50.000đ/ người lớn trẻ em 20.000đ trẻ em dưới 0,8m được miễn phí vé vào cổng
 
-Đường đi Đồi Mộng Mơ
+**Đường đi Đồi Mộng Mơ**
 
 Sau đây Hoa Dalat Travel sẽ hướng dẫn các bạn đi tới Đồi Mộng Mơ từ trung tâm thành phố khu vực chợ Đà Lạt bạn đi theo đường Trần Quốc Toản => Đinh Tiên Hoàng => Phù Đổng Thiên Vương => Mai Anh Đào => Đồi Mộng Mơ.
