@@ -7,26 +7,30 @@ author: [doanbinh]
 
 Một quán cà phê và cũng là điểm tham quan vô cùng thú vị và hấp dẫn vừa xuất hiện đã cực Hot tại thành phố du lịch Đà Lạt đó chính là F Cánh Đồng Hoa với view 360 vô cùng ảo diệu.
 
+![ten buc hinh](https://kenhhomestay.com/wp-content/uploads/2018/02/ca-phe-f-canh-dong-hoa-da-lat-8.jpg "ten buc hinh")
 
-F Cánh Đồng Hoa nằm ở đâu?
 
-Địa chỉ:
+**Địa chỉ:**
+
 Cafe F cánh đồng hoa thuộc đường lánh nạn 1, đèo Mimosa, phường 10 thành phố Đà Lạt tỉnh Lâm Đồng
 
-Mở cửa:
+**Mở cửa:**
+
 Quán có thời gian mở cửa vào lúc 8h sáng và đóng cửa lúc 18h hàng ngày
 
-Giá vé tham quan:
+**Giá vé tham quan:**
+
 Người lớn 30.000đ
 
 Trẻ em 20.000đ
 
 Trẻ dưới 5 tuổi miễn phí 
 
-Số điện thoại:
+**Số điện thoại:**
+
 Nếu có nhu cầu liên hệ quán bạn có thể liên hệ qua số: 0263 3516 777
 
-Đường đi F Cánh đồng Hoa
+**Đường đi F Cánh đồng Hoa**
 
 Từ trung tâm thành phố đi tới Cafe F- Cánh Đồng Hoa bạn phải trải qua quãng đường dài khoảng 8,5km.
 
@@ -47,11 +51,11 @@ Bạn cũng còn một đường khác đi tới quán cà phê này đó chính
 
 Quán cà phê: Uống cà phê và ngắm hoa từ trên cao
 
-Mua vé để đi xuống ngắm hoa và chụp hình trực tiếp
+**Mua vé để đi xuống ngắm hoa và chụp hình trực tiếp**
 
 Quán đang phục vụ với menu phong phú gồm hơn 100 loại nước ép, sinh tố chế biến từ trái cây tươi ở đà lạt như dâu tây, chanh dây….và các món ăn nhanh như gà rán, pizza, gà nướng….
 
-Lưu ý khi tham quan
+**Lưu ý khi tham quan**
 
 Bạn nên chú ý những điểm sau đây khi đến F Cánh Đồng Hoa
 
