@@ -7,11 +7,14 @@ author: [doanbinh]
 
 Một địa điểm check in Đà Lạt mới cực hot đang làm mưa gió trên mạng xã hội Facebook đang chờ bạn khám phá. Trong bài viết này sẽ review Hoa Sơn Điền Trang để bạn biết rằng mình có nên đến tham quan hay không?
 
+![ten buc hinh](https://dulichdalat.pro/wp-content/uploads/2017/12/hoa-son-dien-trang-dulichdalat.jpg "ten buc hinh")
+
+
 Do không nằm ở trong trung tâm nên đầu tiên bạn cần biết địa chỉ chính xác của Hoa Sơn Điền Trang Đà Lạt để tìm đến một cách nhanh nhất.
 
 Điểm tham quan này nằm ở tỉnh lộ 725 đèo Tà Nung thuộc tiểu khu 159, phường 5 cách trung tâm thành phố ngàn hoa mộng mơ khoảng 7km.
 
-Đường đi chi tiết đến Hoa Sơn Điền Trang
+**Đường đi chi tiết đến Hoa Sơn Điền Trang**
 
 Do mới được làm mới nên đường đi đến Hoa Sơn Điền Trang rất đẹp dù bạn đi xe máy, ô tô 4 tới 45 chỗ đều vào đến tận nơi khu du lịch này, không khó khăn như khi tham quan Linh Quy Pháp Ấn đâu nhé.
 
@@ -20,17 +23,17 @@ Từ trung tâm thành phố khu Hòa Bình bạn đi theo đường 3/2 => đư
 
 
 
-Tham quan Hoa Sơn Điền Trang Đà Lạt
+**Tham quan Hoa Sơn Điền Trang Đà Lạt**
 
 Sau khi đến nơi thì những nơi nào mà bạn nên tham quan trong khu du lịch này:
 
-Bàn tay Phật khổng lồ
+*Bàn tay Phật khổng lồ*
 
 Đây là điểm đầu tiên được mọi người checkin trong khu du lịch này được làm bằng những sợi dây rừng cổ thụ và nằm nhô về phía trước. Nếu ngày nhỏ có xem Tây Du Ký thì bạn sẽ biết bàn tay Phật như thế nào khi nhốt Tôn Ngộ Không xuống núi 500 năm trước.
 
 Địa điểm này mà không làm vài tấm để khoe với bạn bè thì hơi phí đó nha.
 
-Các điểm còn lại trong sơn trang
+*Các điểm còn lại trong sơn trang*
 
 Hoa Anh Đào được lấy cây lớn trực tiếp từ Nhật Bản: khi nở rộ vào tháng 1 đến đến checkin bạn bè chắc chắn sẽ ngỡ rằng bạn đang vivu ở tận xứ mặt trời mọc.
 
@@ -38,18 +41,18 @@ Cánh đồng hoa tam giác mạch
 
 Một khu khá lớn trồng hoa hồng cổ Sapa: Bạn có thể tưởng tượng rằng hoa hồng đà lạt đã đẹp và nổi tiếng thì hoa hồng cổ của Sapa được trồng ở đây sẽ Hot cỡ nào.
 
-Cổng Trời
+Cổng Trời;
 
-Cây Đa Ngàn Năm
+Cây Đa Ngàn Năm;
 
-Khu cắm trại trên thác 7 tầng tuyệt đẹp
+Khu cắm trại trên thác 7 tầng tuyệt đẹp;
 
-Nhà gỗ trên cây
+Nhà gỗ trên cây;
 
-Thác nước và nhiều tiểu cảnh ở quanh hồ
+Thác nước và nhiều tiểu cảnh ở quanh hồ.
 
 
-Giá vé
+**Giá vé**
 
 Sau đây là bảng giá các loại vé được sử dụng trong khu du lịch Hoa Sơn Điền Trang cho bạn tham khảo.
 
