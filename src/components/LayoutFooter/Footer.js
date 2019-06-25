@@ -61,7 +61,7 @@ const Footer = ({layoutHasSidebar = false}) => (
           }}>
           <FooterNav layoutHasSidebar={layoutHasSidebar}>
             <MetaTitle onDark={true}>Tài trợ & Công Đức</MetaTitle>
-            <FooterLink to="/blog/">Món Ngon Đà Lạt</FooterLink>
+            <FooterLink to="/blog/">Đà Lạt Mộng Mơ</FooterLink>
             <ExternalFooterLink
               href="http://bakadono.com"
               target="_blank"
@@ -78,7 +78,7 @@ const Footer = ({layoutHasSidebar = false}) => (
               href="https://codeworldpostal.com"
               target="_blank"
               rel="noopener">
-              Thành Phố Mông Mơ
+              Thành Phố Mộng Mơ
             </ExternalFooterLink>
           </FooterNav>
         </div>
